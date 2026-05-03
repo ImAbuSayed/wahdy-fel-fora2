@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا ليالي الشوق خذيني للغرام
+> نار الحب في قلبي لا تنام
+> في عيونك أرى سحر الوجود
+> حبنا يكسر كل القيود
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
